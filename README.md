@@ -1,0 +1,2 @@
+# premium-xylo-carve-001-xylophone-bar-carving-tone-t
+Tired of uneven xylophone bars and inconsistent tone? Your craft deserves precision—stop relying on guesswork and start tracking every carve, every frequency, every note with a system designed for the dedicated xylophone bar artisan.  This Notion template transforms your xylophone bar carving and tone tuning from a chaotic trial into a repeatable,
